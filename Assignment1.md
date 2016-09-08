@@ -10,9 +10,9 @@ Three jobs I would be interested in immediately after graduation (links to job p
 
 Three jobs I would be interested in 5 - 8 years after graduation (links to job posting are at the end of the report):
 
-4. Secret Agent (Cyber Crime Devision) for the Federal Bureau of Investigation (FBI)
+4. Secret Agent (Cyber Crime Division) for the Federal Bureau of Investigation (FBI)
 
-5. Cyber Threat Analyst for the Cetral Intelligence Agency (CIA)
+5. Cyber Threat Analyst for the Central Intelligence Agency (CIA)
 
 6. Information Systems Security Officer Level 1 for Leidos
 
