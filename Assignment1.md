@@ -1,13 +1,19 @@
 # IT191-Assignment-1
 
 Three jobs I would be interested in immediately after graduation (links to job posting are at the end of the report):
+
 1. IT Systems Analyst I for the Tatitlek Corporation/GeoNorth, LLC
+
 2. Information & Cyber Security Analyst for Liberty Mutual Insurance
+
 3. Systems Analyst I for Associated Banc-Corp
 
 Three jobs I would be interested in 5 - 8 years after graduation (links to job posting are at the end of the report):
+
 4. Secret Agent (Cyber Crime Devision) for the Federal Bureau of Investigation (FBI)
+
 5. Cyber Threat Analyst for the Cetral Intelligence Agency (CIA)
+
 6. Information Systems Security Officer Level 1 for Leidos
 
 For every single one of the job postings I have listed, a Bachelor’s Degree in Computer Science is required. Therefore step one in obtaining any one of the listed jobs is to graduate and obtain my degree. Graduating with a high GPA and a clean transcript will help me when I am applying for jobs, so in the very short term, obtaining A’s in all of my classes are a must.
